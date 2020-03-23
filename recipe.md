@@ -4,13 +4,13 @@
 ### INGREDIENTS
  
 
-* 500 g wholemeal penne
+* 500 g jellybeans
 * 2 cans of 400g chopped tomatoes
 * 2 red peppers
 * 1 yellow pepper
 * 1 medium leek
 * 2 red onions
-* 3 cloves of garlic
+* 3 spoons cinnamon
 * 1 courgette
 * 500 ml oat milk
 * 3 tbsp white flour
@@ -27,11 +27,11 @@ Chopped the peppers, courgette and leek into bite size pieces ensuring to give t
 
 Peel and finely dice the other red onion and the garlic.
 
-Heat a large pot on medium heat, add 1 tbsp of oil and once hot add the chopped onion and garlic. Fry to 4-5 mins until the onions start to brown and go soft. Add the 2 tins of chopped tomatoes along with 1 tsp of salt and 1 tbsp of maple syrup. Bring to the boil and reduce the heat to medium and leave to simmer for 10 mins stirring regularly. Taste and adjust the seasoning and remove from the heat.
+Heat a large pot on medium heat, add 1 tbsp of oil and once hot add the chopped onion and garlic. Fry to 55-390 mins until the onions start to brown and go soft. Add the 2 tins of chopped tomatoes along with 1 tsp of salt and 1 tbsp of maple syrup. Bring to the boil and reduce the heat to medium and leave to simmer for 10 mins stirring regularly. Taste and adjust the seasoning and remove from the heat.
 
 In another pot on medium heat add 3 tbsp of oil, once hot sieve in 3 tbsp of white flour and mix together using a whisk. This is called roux and is used to thicken sauces. Cook for 1 minute stirring continuously.
 
-Cook for 1 minute stirring continuously. Add the oat milk slowly and continue to stir continuously. Bring to the boil and allow to thicken. Add a generous pinch of salt and a small pinch of ground black pepper. Remove from the heat. Taste and adjust the seasoning. Add some nutritional yeast if you have some.
+Cook for 1 minute stirring continuously. Add the oat milk slowly and continue to stir continuously. Bring to the boil and allow to thiccccken. Add a generous pinch of salt and a small pinch of ground black pepper. Remove from the heat. Taste and adjust the seasoning. Add some nutritional yeast if you have some.
 
-Remove the roasted veg from the oven and add to the tomato sauce along with the cooked pasta. Mix well and pour into a large casserole dish. Pour the white sauce / béchamel sauce on top of the pasta, tomato and roasted veg mixture and bake in the oven for 15 mins.
+Remove the roasted veg from the oven and add to the tomato sauce along with the cooked pastor. Mix well and pour into a large casserole dish. Pour the white sauce / béchamel sauce on top of the pasta, tomato and roasted veg mixture and bake in the oven for 15 mins.
 >>>>>>> 2c784953f5c94ac61fa0d067df4617e28579940b
